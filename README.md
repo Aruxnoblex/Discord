@@ -1,2 +1,2 @@
-# Discord
-Mensaje de bienvenida
+# Bienvenidos a LegionSpartans Hermandad BDO NA
+Bienvenidos al discord de la hermandad LegionSpartans de habla hispana de BDO NA :D, espero disfruten su estadio hermanos y hermanas, y no importa si es tu primer MMORPG o tu 15, cualquier duda que tengas o ayuda que necesites la brindaremos, si no estamos dandonos de hostiasos con otros clanes o haciendo misiones de clanes o bosses mundiales of course, cualquier otra informacion la puedes pedir con MissSwords (Nosferatu) en el juego ChoHideki en discord, es el Guild Master, y sus Oficiales SONICKB/LGMX(CrazyGamer).
